@@ -36,3 +36,4 @@ N/A
 Reach me at the links below with additional questions:
 - Github: https://github.com/mawiano 
 - Email: rojanomariano@gmail.com
+![image](https://user-images.githubusercontent.com/117341197/217486094-7a61289c-08ed-4adb-9cfb-2b5312e9221f.png)
